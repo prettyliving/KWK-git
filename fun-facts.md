@@ -1,3 +1,3 @@
-1. Cashews comw from a fruit.
-2. KWK is turning 10 years old this year!
-3. My dog is named Taz.
+1. Cashews come from fruit.
+2. KWK is turning 10 years old this year.
+3. my dog's name is Taz.
